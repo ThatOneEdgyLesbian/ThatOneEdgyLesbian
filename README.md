@@ -1,5 +1,5 @@
 - Hi, I’m @ThatOneEdgyLesbian, but you can call me Fern
 - I’m interested in art and music. I'd say I'm relatively okay at both.
-- I’m currently learning programming. I'm terribly at it though, so I'd appreciate help with that.
+- I’m currently learning programming. I'm terrible at it though, so I'd appreciate help with that.
 - I’m looking to collaborate on a lot of stuff. I'm especially interested in video games.
 - How to reach me: my main email is skylercunningham69@gmail.com (be warned, I don't check it often)
